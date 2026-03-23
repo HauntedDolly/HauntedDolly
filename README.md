@@ -1,31 +1,90 @@
-𝔅𝔦𝔱𝔢 𝔐𝔢 𝄞ˎˊ˗
-
-<img width="100" height="100" alt="Untitled88_20251126152351" src="https://github.com/user-attachments/assets/04a8e620-1a6d-4f6f-aba8-2bce0d91cc06" />
-
-𝐬𝐢𝐠𝐧 𝐦𝐲 𝐚𝐭𝐚!! »» [dollys.atabook.org
-](https://dollys.atabook.org/)
+<img width="200" height="200" alt="schlat 1 2 0" src="https://github.com/user-attachments/assets/72466848-62f0-4f44-981c-b432c3ed5aea" />
+ദ്ദി◝ ⩊ ◜.ᐟ
 
 
-１７＋
-
-しなもろーる
-
-𝗗𝗡𝗜'𝗦 » 𝗽𝗿𝗼𝘀𝗵𝗶𝗽𝗽𝗲𝗿𝘀, 𝗹𝗼𝗹𝗶𝗰𝗼𝗻𝘀, 𝗮𝗿𝗿𝗼𝗴𝗮𝗻𝘁 𝗽𝗽𝗹, 𝘀𝗲𝗹𝗳𝗶𝘀𝗵 𝗽𝗽𝗹, 𝗮𝗻𝘆𝗼𝗻𝗲 𝘂𝗻𝗱𝗲𝗿 𝟭𝟰, 𝘄𝗲𝗿𝗶𝗱 𝗽𝗽𝗹,
-
-ཐི ྐ❤︎ ཋྀ‿◞   ྀི
+𝘛𝘩𝘦 𝘵𝘳𝘶𝘦 𝘖𝘯𝘦 𝘢𝘯𝘥 𝘰𝘯𝘭𝘺 𝘥𝘰𝘭𝘭𝘺!(/j) 🍮🥄 ˚₊‧
 
 
-𝓈𝓌𝑒𝑒𝓉𝒽𝑒𝒶𝓇𝓉 𓂃 ࣪˖ ִֶཐི༏ཋྀ󠀮
+᭝ ᨳଓ ՟ 𝓐bout me's~
+
+
+link 1 exmp(wip)
 
 
 
-𝗶𝗻𝘁𝘀 » 𝗸𝗻𝘆, 𝗿𝗱𝗿(𝟭-𝟮), 𝗺𝗮𝗿𝘃𝗲𝗹 𝗿𝗶𝘃𝗮𝗹𝘀, 𝗮𝘁𝘀𝘃, 𝗺𝗹𝗽, 𝗼𝗽, 𝗷𝗷𝗸, 𝘁𝗼𝗸𝘆𝗼 𝗴𝗵𝗼𝘂𝗹, 𝗱𝗶𝘀𝗽𝗮𝘁𝗰𝗵. 𝗳𝗿𝘀𝗸𝗻, 𝗱𝘄, 𝗮𝘀𝗸 𝗮𝗯𝗼𝘂𝘁 𝗺𝗼𝗿𝗲!!
+link 2 exmp (wip)
 
 
-'..𝗬𝗼𝘂 𝗮𝗿𝗲 𝗺𝘆 𝗵𝗲𝗿𝗼!..'
-𓂃 ࣪˖ ִֶཐི༏ཋྀ󠀮
-<img width="100" height="100" alt="Untitled88_20251126145520" src="https://github.com/user-attachments/assets/cf388964-277d-46ea-8cd6-bf9a79168e12" />
-![moonknight 1](https://github.com/user-attachments/assets/163e7c7c-1ae5-41e6-9e2a-970432c5e5a5)
+https://dollys.atabook.org/
 
 
-小猫 ♪ ༘⋆
+
+
+
+
+
+<img width="200" height="200" alt="schlatt dec" src="https://github.com/user-attachments/assets/c07a8a22-8d73-4b09-af12-5e5b979223ad" />
+
+
+
+˖ ֹ੭୧ 𝗺𝗶𝗻𝗲'𝘀 ⊹ ࣪ ⑅
+My beautiful lovely gf deli🐇
+
+
+ﾒ૦𝓝ames i go by  »
+𝓞illie
+
+
+
+𝓝aeil
+
+
+
+𝓓olly
+
+
+
+
+𝓡ammy
+
+
+
+𝓐spen
+
+
+
+
+
+<img width="400" height="400" alt="schlatt 7" src="https://github.com/user-attachments/assets/5af19f0d-824e-4f1b-bb56-77669aa3f540" />
+
+
+
+
+
+
+𝓓ni's
+Proshippers,incest sups, fskn fandom, rude ppl, selfcentered ppl, controling ppl, anyone under 14+, alien stage fndm, Dsmp fans.
+
+
+
+𝓘nt's
+Rdr, weezer fans, jjk, blue lock, kny, resident evil, cod, one piece, Qsmp(2) , marvel rivals, death note, tokyo ghoul, gorillaz squid games, outsiders, and mlp!
+
+
+
+
+
+𝓕av '𝓕riend(s)
+𝓢ills
+
+𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠𓎟𓎠
+
+
+<img width="300" height="300" alt="bunny" src="https://github.com/user-attachments/assets/c1e1c573-cbb7-4c2b-acb5-941b2777eaec" />
+
+
+
+
+
+
+

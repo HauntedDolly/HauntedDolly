@@ -8,11 +8,9 @@
 ᭝ ᨳଓ ՟ 𝓐bout me's~
 
 
-link 1 exmp(wip)
+https://dollysdollitfulstrawpage.straw.page
 
 
-
-link 2 exmp (wip)
 
 
 https://dollys.atabook.org/

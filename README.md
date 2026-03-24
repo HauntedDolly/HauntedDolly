@@ -51,12 +51,7 @@ My beautiful lovely gf deli🐇
 
 
 
-
-
 <img width="400" height="400" alt="schlatt 7" src="https://github.com/user-attachments/assets/5af19f0d-824e-4f1b-bb56-77669aa3f540" />
-
-
-
 
 
 

@@ -25,7 +25,6 @@ https://dollys.atabook.org/
 
 
 ˖ ֹ੭୧ 𝗺𝗶𝗻𝗲'𝘀 ⊹ ࣪ ⑅
-My beautiful lovely gf deli🐇
 
 
 ﾒ૦𝓝ames i go by  »
